@@ -64,5 +64,6 @@ Action: Improve employee engagement, job satisfaction, and compensation strategy
 Business & Data Analyst  
 Calgary, Alberta  
 Email: aihsatti@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/ahmed-satti-53063470/ 
 
